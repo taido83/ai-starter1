@@ -1,1 +1,0 @@
-# AI cho người mới bắt đầu
